@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on opensource projects
 - 📫 How to reach me ig: @mod.diii_  X:
 - 😄 Pronouns: I, we/us, they/them
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... I'm boring AF
 
 <!---
 modd3/modd3 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
